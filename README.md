@@ -26,8 +26,13 @@ FALYA APARYADO 5
 
 
 
+<img width="3619" height="2246" alt="circuito_empotrados_bb" src="https://github.com/user-attachments/assets/c972e1e7-e681-4eb5-8c77-1ddc67b18968" />  
+  
 
 
+<img width="4080" height="3060" alt="IMG_20261120_194210" src="https://github.com/user-attachments/assets/2fe5a993-b6a6-4865-8fe1-edea639c4919" />  
+  
 
+<img width="4080" height="3060" alt="_storage_emulated_0_DCIM_Camera_IMG_20261120_194214" src="https://github.com/user-attachments/assets/d3fdbc61-c6ec-47cd-b3d1-9187b8a3b2bd" />
 
 
